@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+I am very inactive on this platform, so I am unsure what to put here.
 <!--
 **scamdotnet/scamdotnet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
